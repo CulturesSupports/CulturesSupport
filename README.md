@@ -15,6 +15,10 @@ https://en.wikipedia.org/wiki/Deindustrialization
 
 https://en.wikipedia.org/wiki/Neolithic_Revolution
 
+
+https://en.wikipedia.org/wiki/Primitive_communism
+
+
 ---------------------
 
 # Crime Web Dark Web

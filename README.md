@@ -63,3 +63,6 @@ Ranking FroM Terrorism and Deadly Fraud
 ---------------
 
 Runned Serial Fraud Despite Obvious Serial Corruption Practices and Scammed Private Persons
+
+
+# Norway is BlackListed for World Biggest Fraud

@@ -32,6 +32,9 @@ https://en.wikipedia.org/wiki/Neoevolutionism
 
 # Large Leadership Theory 
 
+https://en.wikipedia.org/wiki/Psychosis
+
+https://en.wikipedia.org/wiki/Schizophrenia
 
 https://en.wikipedia.org/wiki/Mental_disorder
 

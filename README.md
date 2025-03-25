@@ -10,6 +10,11 @@ https://en.wikipedia.org/wiki/Anarcho-primitivism
 
 https://en.wikipedia.org/wiki/XDedic
 
+
+https://en.wikipedia.org/wiki/Deindustrialization
+
+
+
 ---------------------
 
 # Crime Web Dark Web

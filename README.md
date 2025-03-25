@@ -49,3 +49,7 @@ Ranking FroM Terrorism and Deadly Fraud
 - Serial Frauding USA
 - Serial Criminal Drug Dealings
 - Serial Crime Work
+- Serial Swindled Housing
+- Serial Criminal Financing
+- Serial Fraud Checking
+- Serial Criminal Ponzi Scheme Banking

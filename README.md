@@ -66,3 +66,4 @@ Runned Serial Fraud Despite Obvious Serial Corruption Practices and Scammed Priv
 
 
 # Norway is BlackListed for World Biggest Fraud
+# Norway is BlackListed for Terror

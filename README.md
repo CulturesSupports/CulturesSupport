@@ -32,6 +32,10 @@ https://en.wikipedia.org/wiki/Neoevolutionism
 
 # Large Leadership Theory 
 
+
+
+https://en.wikipedia.org/wiki/MindFreedom_International
+
 https://en.wikipedia.org/wiki/Psychoeducation
 
 

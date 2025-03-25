@@ -71,6 +71,6 @@ Runned Serial Fraud Despite Obvious Serial Corruption Practices and Scammed Priv
 
 ---------------
 
-## Norway Runs Criminal Anti Communism
+## Norway Runs Criminal Anti-communism
 
 https://en.wikipedia.org/wiki/Anti-communism

@@ -19,3 +19,9 @@ https://en.wikipedia.org/wiki/Dark_web#Darknet_markets
 
 
 https://en.wikipedia.org/wiki/Operation_Onymous
+
+
+https://en.wikipedia.org/wiki/Money_laundering
+
+
+All operation in norway is Fraud and Money Laundering

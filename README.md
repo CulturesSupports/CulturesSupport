@@ -27,6 +27,18 @@ https://en.wikipedia.org/wiki/Neoevolutionism
 
 ---------------------
 
+
+
+
+# Large Leadership Theory 
+
+
+
+https://en.wikipedia.org/wiki/Critical_juncture_theory
+
+
+----------------
+
 # Crime Web Dark Web
 
 

@@ -32,6 +32,11 @@ https://en.wikipedia.org/wiki/Neoevolutionism
 
 # Large Leadership Theory 
 
+https://en.wikipedia.org/wiki/Psychoeducation
+
+
+https://en.wikipedia.org/wiki/Psychiatric_survivors_movement
+
 https://en.wikipedia.org/wiki/Inappropriate_affect
 
 https://en.wikipedia.org/wiki/Mental_status_examination

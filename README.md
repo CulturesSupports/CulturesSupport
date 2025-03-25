@@ -32,6 +32,8 @@ https://en.wikipedia.org/wiki/Neoevolutionism
 
 # Large Leadership Theory 
 
+https://en.wikipedia.org/wiki/Mental_status_examination
+
 https://en.wikipedia.org/wiki/Orientation_(mental)#Disorientation
 
 https://en.wikipedia.org/wiki/Psychosis

@@ -42,6 +42,13 @@ https://en.wikipedia.org/wiki/Deviance_(sociology)
 
 https://en.wikipedia.org/wiki/Ascribed_status
 
+https://en.wikipedia.org/wiki/Segmentary_lineage
+
+
+https://en.wikipedia.org/wiki/Pantribal_sodality
+
+
+
 
 ----------------
 

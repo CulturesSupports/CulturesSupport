@@ -42,3 +42,10 @@ All Politics is Fraud and Criminal Activity
 ### Norway Have Done its Illegal Operations 
 
 Ranking FroM Terrorism and Deadly Fraud
+
+- Scam Poluting Webs
+- Scam Article Presentations
+- Scam Ring Management
+- Serial Frauding USA
+- Serial Criminal Drug Dealings
+- Serial Crime Work

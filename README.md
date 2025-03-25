@@ -47,7 +47,7 @@ https://en.wikipedia.org/wiki/Segmentary_lineage
 
 https://en.wikipedia.org/wiki/Pantribal_sodality
 
-
+https://en.wikipedia.org/wiki/Leveling_mechanism
 
 
 ----------------

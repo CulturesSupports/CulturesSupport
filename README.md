@@ -40,7 +40,7 @@ https://en.wikipedia.org/wiki/Social_order
 
 https://en.wikipedia.org/wiki/Deviance_(sociology)
 
-
+https://en.wikipedia.org/wiki/Ascribed_status
 
 
 ----------------

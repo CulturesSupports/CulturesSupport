@@ -27,3 +27,8 @@ https://en.wikipedia.org/wiki/Money_laundering
 All operation in norway is Fraud and Money Laundering
 
 All Politics is Fraud and Criminal Activity
+
+
+
+
+# its a to good to be true scam ring country

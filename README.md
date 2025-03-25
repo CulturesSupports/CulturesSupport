@@ -38,6 +38,11 @@ https://en.wikipedia.org/wiki/Critical_juncture_theory
 
 https://en.wikipedia.org/wiki/Social_order
 
+https://en.wikipedia.org/wiki/Deviance_(sociology)
+
+
+
+
 ----------------
 
 # Crime Web Dark Web

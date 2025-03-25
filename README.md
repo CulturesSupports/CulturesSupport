@@ -58,3 +58,8 @@ Ranking FroM Terrorism and Deadly Fraud
 ### Serial Swindled Political Investments from Criminal Swindle Operations
 ### Serial Scammed Political Parties and Swindled And Scam Economy Run a Country
 # Norway Runned World Worst Criminal Ponzi Fraud Schemes and Transnational Serial Crime Fraud
+
+
+---------------
+
+Runned Serial Fraud Despite Obvious Serial Corruption Practices and Scammed Private Persons

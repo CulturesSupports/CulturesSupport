@@ -32,3 +32,13 @@ All Politics is Fraud and Criminal Activity
 
 
 # its a to good to be true scam ring country
+
+
+
+
+------------------
+
+
+### Norway Have Done its Illegal Operations 
+
+Ranking FroM Terrorism and Deadly Fraud

@@ -53,3 +53,6 @@ Ranking FroM Terrorism and Deadly Fraud
 - Serial Criminal Financing
 - Serial Fraud Checking
 - Serial Criminal Ponzi Scheme Banking
+
+
+### Serial Swindled Political Investments from Criminal Swindle Operations

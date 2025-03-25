@@ -26,4 +26,13 @@ https://en.wikipedia.org/wiki/Money_laundering
 
 All operation in norway is Fraud and Money Laundering
 
-All Politics is Fraud and Criminal Activity
+All Politics is Fraud and Criminal Activity and Scams
+
+All Crimes is Back Furnance Fraud of Dark Web
+
+
+
+.-----------------------
+
+
+# its a To Good to Be True Crime Scam Country
